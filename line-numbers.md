@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome.
 #### 10
-#### 11 this is a random sentence.
+#### 11 ide is good and fun 
 #### 12
 #### 13
 #### 14
